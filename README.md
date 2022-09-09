@@ -1,4 +1,4 @@
-- Hi, I’m @HarryLambert95 - Senior Insight Analyst, Virgin Bet, Gibraltar.
+- Hi, I’m @HarryLambert95 - Senior Insight Analyst - Team Lead, Virgin Bet, Gibraltar.
 - 👀 I’m interested in - Automation and innovation.
 - 🌱 I’m currently learning - New ways to offer automated solutions to manual processes to increase efficiency and optimise results.
 - 💞️ I’m looking to collaborate on - Anything interesting!
